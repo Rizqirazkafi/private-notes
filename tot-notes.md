@@ -17,4 +17,23 @@
     * Efektif 
         > Menimbulkan efek
     * Solutif 
-        > Menyelesaikan masalah 
+        > Menyelesaikan masalah
+        > fake solution if not found 
+
+## Personality & Confident
+    * Integritas
+        > 
+    * Kejujuran 
+        > 
+    * Mampu menguasai lapangan 
+
+## Creative 
+    * Proaktif 
+        >  
+    * Adaptif 
+        > 
+    * Dapat Menggiring Opini 
+        >
+
+## Skill and Qualities 
+    *   
