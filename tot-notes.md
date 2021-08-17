@@ -36,4 +36,20 @@
         >
 
 ## Skill and Qualities 
-    *   
+    * Communication 
+    * Organization 
+    * Analyzing 
+    * Advance research
+
+## Qualities 
+    * Good listener 
+    * Motivational 
+    * Strategic thinkers 
+    * Self-evaluators   
+
+### What to improve
+    * Cara menarik minta maba tanpa paksaan dan sanksi apa yang bisa diterapkan :
+    
+
+
+
